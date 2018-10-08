@@ -1,0 +1,1 @@
+# KCK_LAB1_Zad2
